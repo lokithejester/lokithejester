@@ -26,4 +26,5 @@ I do not lend my supporter to others, plus it's t1, what's the point, people?
 
            SEE YOU SOON. . 
 
-![1000005636](https://github.com/user-attachments/assets/a8bb606c-e884-42ea-ac05-1bf8911b10f4)
+![1000005635](https://github.com/user-attachments/assets/982bab8c-db10-4510-ace8-412cf04c66c2)
+
